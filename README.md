@@ -1,1 +1,1 @@
-URL: https://emihopebu.github.io/infinite_animation/
+URL: https://emihopebu.github.io/coming_soon/
