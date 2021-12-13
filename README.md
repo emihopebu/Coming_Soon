@@ -1,1 +1,1 @@
-URL: https://emihopebu.github.io/coming_soon/
+URL: https://emihopebu.github.io/Coming_Soon/
